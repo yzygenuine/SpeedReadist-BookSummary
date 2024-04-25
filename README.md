@@ -1,5 +1,5 @@
 # SpeedReadist - Book Summary
-Get Book Keypoints in 15 Minutes,Accelerate Your Book Journey! [SpeedReadist - Book Summary](https://www.speedreadist.com/) 
+Get Book Keypoints in 15 Minutes,Accelerate Your Book Journey!https://www.speedreadist.com [SpeedReadist - Book Summary](https://www.speedreadist.com/) 
 
 # About
 KEY INSIGHTS FROM 10000+ BESTSELLING BOOKS [SpeedReadist - Book Summary](https://www.speedreadist.com/) 
