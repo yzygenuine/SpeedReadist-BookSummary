@@ -48,3 +48,10 @@ Eager to learn but pressed for time? Just 15 Minutes a Book: Uplift yourself wit
 Looking to progress your career or accumulate wealth? Take a swift short course with books on Business & Career, Finance & Investment, and Leadership for specialized advice and direction.
 Seeking personal happiness or balanced relationships? Plunge into life's deep themes in Spirituality, Family, and Contentment. Experts and psychologists provide insight and solutions for a satisfying life.
 Read daily and discover a better you. Don't count the minutes, make the minutes count! Keep moving forward!
+
+# Questions? Recommendations? 
+
+Talk to SpeedReadist! Please email us at:speedreadist@gmail.com .
+
+We would love to hear from you! We're devoted to supporting everyone who desires self-betterment and positive transformation. As such, we will attentively listen to and work on each of your ideas and feedback. SpeedReadist shares universal voices with you and eagerly anticipates your input, too. Ready for progress? Let's speed onward with SpeedReadist to evolve into improved versions of ourselves!
+
