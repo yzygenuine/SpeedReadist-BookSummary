@@ -1,5 +1,6 @@
 # SpeedReadist - Book Summary
 Get Book Keypoints in 15 Minutes,Accelerate Your Book Journey!https://www.speedreadist.com [SpeedReadist - Book Summary](https://www.speedreadist.com/) 
+
 Download the app: [SpeedReadist - Book Summary](https://apps.apple.com/app/id6478863162) 
 # About
 KEY INSIGHTS FROM 10000+ BESTSELLING BOOKS [SpeedReadist - Book Summary](https://www.speedreadist.com/) 
